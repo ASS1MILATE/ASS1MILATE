@@ -1,16 +1,19 @@
-## Hi there 👋
 
-<!--
-**ASS1MILATE/ASS1MILATE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
 
-Here are some ideas to get you started:
+  $${\color{white}  ❝ \space \color{red}IF \space YOU \space WANNA \space FLAY \space ME\color{white},}$$ 
+  <br>
+  $${\color{red}LET'S \space SEE \space WHAT'S \space INSIDE \color{white}. \space ❞ }$$ 
+   <br>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+<br>❝ I SAY GOODBYE TO A BLACKBIRD, I SAY GOODBYE TO MY OWN WORDS.
+<BR> SHE'S AN UNLUCKY GIRL, WHO CAN SAVE HER?
+<br> THIS DISEASE THAT SHE HAS, THERE IS NO CURE.❞ 
+<br>
+<br>❝ THE STEEL IS KISSING HER HEAD NOW,
+<br>THEN THE BLOOD AND SALIVA IN HER MOUTH.
+<br>ALL THE ANGELS LAUGHING DOWN
+<br>ALL THE ANGELS LAUGHING DOWN.❞ 
+
+</p>
