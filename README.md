@@ -12,11 +12,21 @@ $${\color{RED}LET'S \space SEE \space WHAT'S \space 𝑰𝑵𝑺𝑰𝑫𝑬 \co
 <br> 
 <br> [placeholder]
 <br>
+<br> ‿︵ㅤ⋆ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ B[SYS]OD — BLUE/SIMI/MILLIE — ASSIMILATION REAL AS THE KIDS SAY/j ㅤ ⌓ 𓂂
+<br> ..‿̶ ㅤㅤ｡ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ANY OR NO PRONOUNS  ⟢ ﹕ 19  ͙͘͡★
+<br> ‿ W2INT, I'M VERY EASILY DISTRACTED .ᐟ⋆
+<br> ▸ ♡ NORMALLY SAT WITH FRIENDS.ᐟ.ᐟ [SHARKIE, MILES OR RHYS.] 
 <br>
+<br>
+<br> ◠ feel free to C+H if im alone. i like the company. ⊹
+<br>✶࿐ just don't be weird, honestly. :/ ‿
+<br>◠ on the rare occasion im on safe, please limit interactions if you're under 16. . . ✦
+<br>
+<br>︶︶ 𝙗𝙨𝙠𝙮 // 𝙩𝙪𝙢𝙗𝙡𝙧 // 𝙩𝙤𝙮𝙝𝙤𝙪.𝙨𝙚 ︶︶ 
 <br>
 <br> [placeholder]
 <br>
-<br> $${\color{white}  ❝ \space \color{RED} I \space SAY \space 𝑮𝑶𝑶𝑫𝑩𝒀𝑬 \space TO \space A \space 𝑩𝑳𝑨𝑪𝑲𝑩𝑰𝑹𝑫\color{white}, \space \color{RED} I \space SAY \space 𝑮𝑶𝑶𝑫𝑩𝒀𝑬 \space TO \space MY \space 𝑶𝑾𝑵 \space 𝑾𝑶𝑹𝑫𝑺 \color{white}. }$$ 
+<br> $${\color{white}  ❝ \space — \space \color{RED} I \space SAY \space 𝑮𝑶𝑶𝑫𝑩𝒀𝑬 \space TO \space A \space 𝑩𝑳𝑨𝑪𝑲𝑩𝑰𝑹𝑫\color{white}, \space \color{RED} I \space SAY \space 𝑮𝑶𝑶𝑫𝑩𝒀𝑬 \space TO \space MY \space 𝑶𝑾𝑵 \space 𝑾𝑶𝑹𝑫𝑺 \color{white}. }$$ 
 <br> $${\color{RED} SHE'S \space AN \space 𝑼𝑵𝑳𝑼𝑪𝑲𝒀 \space GIRL\color{white}, \space \color{RED} WHO \space CAN \space 𝑺𝑨𝑽𝑬 \space 𝑯𝑬𝑹 \color{white}? }$$ 
 <br> $${\color{blue} THIS \space 𝑫𝑰𝑺𝑬𝑨𝑺𝑬 \space THAT \space SHE \space HAS\color{white}, \space \color{RED} THERE \space IS \space 𝑵𝑶 \space 𝑪𝑼𝑹𝑬 \color{white}.\space ❞  }$$ 
 <br>
