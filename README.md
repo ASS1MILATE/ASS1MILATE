@@ -8,12 +8,13 @@
   $${\color{RED}LET'S \space SEE \space WHAT'S \space 𝑰𝑵𝑺𝑰𝑫𝑬 \color{white}.ᐟ.ᐟ \space ❞ }$$ 
    <br>
 
-<p align="center">
 <br> $${\color{white}  ❝ \space \color{RED} I \space SAY \space 𝑮𝑶𝑶𝑫𝑩𝒀𝑬 \space TO \space A \space 𝑩𝑳𝑨𝑪𝑲𝑩𝑰𝑹𝑫\color{white}, \space \color{RED} I \space SAY \space 𝑮𝑶𝑶𝑫𝑩𝒀𝑬 \space TO \space MY \space 𝑶𝑾𝑵 \space 𝑾𝑶𝑹𝑫𝑺 \color{white}. }$$ 
 <br> $${\color{RED} SHE'S \space AN \space 𝑼𝑵𝑳𝑼𝑪𝑲𝒀 \space GIRL\color{white}, \space \color{RED} WHO \space CAN \space 𝑺𝑨𝑽𝑬 \space 𝑯𝑬𝑹 \color{white}? }$$ 
 <br> $${\color{blue} THIS \space 𝑫𝑰𝑺𝑬𝑨𝑺𝑬 \space THAT \space SHE \space HAS\color{white}, \space \color{RED} THERE \space IS \space 𝑵𝑶 \space 𝑪𝑼𝑹𝑬 \color{white}.\space ❞  }$$ 
-
-<img src="https://file.garden/ZfRta4uUh3asFRHD/waffawwfafaw.jpg" width="600px" height="450px">
+</p>
+<p align="center">
+  
+<img src="https://file.garden/ZfRta4uUh3asFRHD/awfafawfafwawfafwaafw.jpg" width="600px" height="450px">
 
 </p>
 
