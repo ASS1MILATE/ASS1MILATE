@@ -15,13 +15,13 @@ $${\color{RED}LET'S \space SEE \space WHAT'S \space 𝑰𝑵𝑺𝑰𝑫𝑬 \co
 <br> ‿︵ㅤ⋆ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ B[SYS]OD — BLUE/MILLIE/SIMI — ASSIMILATION REAL AS THE KIDS SAY/j ㅤ ⌓ 𓂂
 <br> ..‿̶ ㅤㅤ｡ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ANY OR NO PRONOUNS  ⟢ ﹕ 19  ͙͘͡★
 <br> ‿ W2INT, I'M VERY EASILY DISTRACTED .ᐟ⋆
-<br> ▸ ♡ NORMALLY SAT WITH FRIENDS.ᐟ.ᐟ [SHARKIE, MILES OR RHYS.] 
+<br> ▸ ♡ NORMALLY SAT WITH FRIENDS.ᐟ.ᐟ [<a href="https://github.com/Sharksters">SHARKIE</a>, MILES OR <a href="https://github.com/OFFICERCHAMBERS">RHYS</a>.] 
 <br>
 <br>
-<br>✶࿐ DON'T BE WEIRD. DON'T FLIRT WITH ME I DON'T SWING THAT WAY. ‿
-<br>◠ on the rare occasion im on safe, please limit interactions if you're under 16. . . ✦
+<br>✶࿐ DON'T BE WEIRD. DON'T FLIRT WITH ME, EVEN JOKINGLY. ‿
+<br>◠ VERY RARELY ON THE SAFE SERVER. UNDER 16'S LIMIT INTERACTION. . . ✦
 <br>
-<br>︶︶ 𝙗𝙨𝙠𝙮 // 𝙩𝙪𝙢𝙗𝙡𝙧 // 𝙩𝙤𝙮𝙝𝙤𝙪.𝙨𝙚 ︶︶ 
+<br>︶︶ BLUESKY // TUMBLR // TOYHOU.SE // BSOD GITHUB ︶︶ 
 <br>
 <br> [placeholder]
 <br>
