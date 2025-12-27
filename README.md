@@ -12,7 +12,7 @@ $${\color{RED}LET'S \space SEE \space WHAT'S \space 𝑰𝑵𝑺𝑰𝑫𝑬 \co
 <br> 
 <br> <img src="https://64.media.tumblr.com/9dbe7a013b0891fe9559329b3c0331b4/6c0c4f1a812c395a-5d/s640x960/a770d1cc1cd2a9d8150a723925df18aab9bf438b.gifv">
 <br>
-<br> ‿︵ㅤ⋆ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ BLUE/MILLIE/SIMI — ASSIMILATION REAL AS THE KIDS SAY/j/j ㅤ ⌓ 𓂂
+<br> ‿︵ㅤ⋆ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ BLUE/MILLIE/ASSIE/SIMI — ASSIMILATION REAL AS THE KIDS SAY/j/j ㅤ ⌓ 𓂂
 <br> ..‿̶ ㅤㅤ｡ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ANY OR NO PRONOUNS  ⟢ ﹕ 19  ͙͘͡★
 <br> ‿ W2INT, I'M VERY EASILY DISTRACTED .ᐟ⋆
 <br> ▸ ♡ NORMALLY SAT WITH FRIENDS.ᐟ.ᐟ [<a href="https://github.com/Sharksters">SHARKIE</a>, MILES OR <a href="https://github.com/OFFICERCHAMBERS">RHYS</a>.] 
