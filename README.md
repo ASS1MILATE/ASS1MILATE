@@ -28,7 +28,7 @@ $${\color{RED}LET'S \space SEE \space WHAT'S \space 𝑰𝑵𝑺𝑰𝑫𝑬 \co
 <br>
 <br> $${\color{white}  ❝ \space — \space \color{RED} I \space SAY \space 𝑮𝑶𝑶𝑫𝑩𝒀𝑬 \space TO \space A \space 𝑩𝑳𝑨𝑪𝑲𝑩𝑰𝑹𝑫\color{white}, \space \color{RED} I \space SAY \space 𝑮𝑶𝑶𝑫𝑩𝒀𝑬 \space TO \space MY \space 𝑶𝑾𝑵 \space 𝑾𝑶𝑹𝑫𝑺 \color{white}. }$$ 
 <br> $${\color{RED} SHE'S \space AN \space 𝑼𝑵𝑳𝑼𝑪𝑲𝒀 \space GIRL\color{white}, \space \color{RED} WHO \space CAN \space 𝑺𝑨𝑽𝑬 \space 𝑯𝑬𝑹 \color{white}? }$$ 
-<br> $${\color{blue} THIS \space 𝑫𝑰𝑺𝑬𝑨𝑺𝑬 \space THAT \space SHE \space HAS\color{white}, \space \color{RED} THERE \space IS \space 𝑵𝑶 \space 𝑪𝑼𝑹𝑬 \color{white}.\space ❞  }$$ 
+<br> $${\color{RED} THIS \space 𝑫𝑰𝑺𝑬𝑨𝑺𝑬 \space THAT \space SHE \space HAS\color{white}, \space \color{RED} THERE \space IS \space 𝑵𝑶 \space 𝑪𝑼𝑹𝑬 \color{white}.\space ❞  }$$ 
 <br>
 <br> <img src="https://64.media.tumblr.com/9dbe7a013b0891fe9559329b3c0331b4/6c0c4f1a812c395a-5d/s640x960/a770d1cc1cd2a9d8150a723925df18aab9bf438b.gifv">
 <br>
