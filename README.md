@@ -13,9 +13,9 @@ $${\color{RED}LET'S \space SEE \space WHAT'S \space 𝑰𝑵𝑺𝑰𝑫𝑬 \co
 <br> <img src="https://64.media.tumblr.com/9dbe7a013b0891fe9559329b3c0331b4/6c0c4f1a812c395a-5d/s640x960/a770d1cc1cd2a9d8150a723925df18aab9bf438b.gifv">
 <br>
 <br> ‿︵ㅤ⋆ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ BLUE/MILLIE/ASSIE/SIMI — ASSIMILATION REAL AS THE KIDS SAY/silly ㅤ ⌓ 𓂂
-<br> ..‿̶ ㅤㅤ｡ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ANY OR NO PRONOUNS  ⟢ ﹕ 20  ͙͘͡★
+<br> ..‿̶ ㅤㅤ｡ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ANY OR NO PRONOUNS  ⟢ ﹕ 20  ⟢ GENDERFLUID FREAK ͙͘͡★ 
 <br> ‿ W2INT, I'M VERY EASILY DISTRACTED .ᐟ⋆
-<br> ▸ ♡ NORMALLY SAT WITH FRIENDS.ᐟ.ᐟ [<a href="https://github.com/Sharksters">SHARKIE</a>, MILES OR <a href="https://github.com/OFFICERCHAMBERS">RHYS</a>.] 
+<br> ▸ ♡ NORMALLY SAT WITH FRIENDS.ᐟ.ᐟ [<a href="https://github.com/Sharksters">SHARKIE</a>, <a href="https://github.com/Circuitsboard">MILES<33</a>, <a href="https://github.com/NULLSCAPING">ISAAC</a> OR <a href="https://github.com/OFFICERCHAMBERS">RHYS</a>.] 
 <br>
 <br>
 <br>✶࿐ DON'T BE WEIRD. DON'T FLIRT WITH ME, EVEN JOKINGLY. ‿
