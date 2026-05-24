@@ -21,7 +21,8 @@ $${\color{RED}LET'S \space SEE \space WHAT'S \space 𝑰𝑵𝑺𝑰𝑫𝑬 \co
 <br>✶࿐ DON'T BE WEIRD. DON'T FLIRT WITH ME, EVEN JOKINGLY. ‿
 <br>◠ VERY RARELY ON THE SAFE SERVER. UNDER 16'S LIMIT INTERACTION. . . ✦
 <br>
-<br>︶︶ <a href="https://bsky.app/profile/bluscreened.bsky.social">BLUESKY</a> // <a href="https://www.tumblr.com/bluscreensy"> TUMBLR</a> // <a href="https://toyhou.se/bluescreened">TOYHOU.SE</a> // <a href="https://github.com/bluscreened"> BSOD GITHUB</a> ︶︶ 
+  <br>  ASPIRING TO ONE DAY BE COMFORTABLE ENOUGH TO POST THINGS... 
+<br>︶︶ <a href="https://x.com/ccxrnifex">TWT</a> <a href="https://www.tumblr.com/cxrnifex">TMBLR</a>   ︶︶ 
 <br>
 <br> <img src="https://64.media.tumblr.com/9dbe7a013b0891fe9559329b3c0331b4/6c0c4f1a812c395a-5d/s640x960/a770d1cc1cd2a9d8150a723925df18aab9bf438b.gifv">
 <br>
