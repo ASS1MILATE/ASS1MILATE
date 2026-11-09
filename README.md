@@ -1,7 +1,7 @@
 
 <p align="center">
 
-<img src="https://file.garden/ZfRta4uUh3asFRHD/waffawwfafaw.jpg" width="600px" height="450px">
+<img src="https://file.garden/ZfRta4uUh3asFRHD/tumblr_94fe3bdd470aabb4dfa209e2d652188a_b66b9009_2048.jpg" width="600px">
 <br>
 <br> <img src="https://camo.githubusercontent.com/9c21a21ed206ff1d55d68e02dadbae4e4f3ed0df1f442484751f03ba0ceca452/68747470733a2f2f66696c65732e636174626f782e6d6f652f33753067736c2e706e67">
 <br>
@@ -32,7 +32,7 @@ $${\color{RED}LET'S \space SEE \space WHAT'S \space 𝑰𝑵𝑺𝑰𝑫𝑬 \co
 <br>
 <br> <img src="https://64.media.tumblr.com/9dbe7a013b0891fe9559329b3c0331b4/6c0c4f1a812c395a-5d/s640x960/a770d1cc1cd2a9d8150a723925df18aab9bf438b.gifv">
 <br>
-<br> <img src="https://file.garden/ZfRta4uUh3asFRHD/awfafawfafwawfafwaafw.jpg" width="600px" height="450px">
+<br> <img src="https://file.garden/ZfRta4uUh3asFRHD/tumblr_0f19f91de601b7af7a640bc6b7bec716_e23456a4_2048.jpg" width="600px" height="450px">
 <br>
 <br> <img src="https://camo.githubusercontent.com/9c21a21ed206ff1d55d68e02dadbae4e4f3ed0df1f442484751f03ba0ceca452/68747470733a2f2f66696c65732e636174626f782e6d6f652f33753067736c2e706e67">
 
