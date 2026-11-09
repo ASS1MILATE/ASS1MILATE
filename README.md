@@ -43,5 +43,5 @@ $${\color{RED}LET'S \space SEE \space WHAT'S \space 𝑰𝑵𝑺𝑰𝑫𝑬 \co
 <br> $${\color{white} 𝘼 𝙇 𝙇 \space  𝐓 𝐇 𝐄 \space 𝐀 𝐍 𝐆 𝐄 𝐋 𝐒 \space  𝐋 𝐀 𝐔 𝐆 𝐇 𝐈 𝐍 𝐆 \space 𝐃 𝐎 𝐖 𝐍.ᐟ \space ❞  }$$ 
 <br>
 <br>
-<br> <a href="https://youtu.be/B20w52a_hmo?si=KLp1TO6_R-EyQimH">SONG CRED (FUKAONA GIRL - STOMACH BOOK)</a> // <a href="https://www.tumblr.com/silverygoof"> ART CRED </a>
+<br> <a href="https://youtu.be/B20w52a_hmo?si=KLp1TO6_R-EyQimH">SONG CRED (FUKAONA GIRL - STOMACH BOOK)</a> // <a href="https://www.tumblr.com/endlessver"> ART CRED </a>
 </p> 
